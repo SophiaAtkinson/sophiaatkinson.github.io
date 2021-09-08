@@ -10,7 +10,7 @@
 
 ### [projectfirewatch.com?](https://projectfirewatch.com)
 
-### [codsworth.xyz?](codsworth.xyz)
+### [codsworth.xyz?](https://codsworth.xyz)
 
 ---
 
