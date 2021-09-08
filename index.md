@@ -1,4 +1,4 @@
-# You have reached the portal
+# You have reached the portal.
 
 ---
 
